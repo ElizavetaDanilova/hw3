@@ -1,3 +1,2 @@
 # hw3
-
-https://docs.google.com/spreadsheets/d/1Ek6TzZ_-RitWfmXwWKObifPKJ7hmrLat_9gEvg9HpB8/edit?usp=sharing
+https://docs.google.com/forms/d/1Hyshukm8CZy0pqlXKZA-3XAcBN5D_fc0B1OknxHgV58/edit?usp=sharing
